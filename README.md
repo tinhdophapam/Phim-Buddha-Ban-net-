@@ -1,2 +1,2 @@
 # Phim-Buddha-Ban-net-
-Phim Buddha(Bản nét)
+Phim Buddha(Bản nét) Đã nén.
